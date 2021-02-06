@@ -1,1 +1,1 @@
-# workshop-UTM
+# vtuber-goals
